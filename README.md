@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on a minded friend
 - 📫 How to reach me 22024210103@cueb.edu.cn
 - 😄 Pronouns: ...
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: "I really love eating snail noodles, stinky tofu, and durian, haha."
 
 <!---
 jipengfei08/jipengfei08 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
